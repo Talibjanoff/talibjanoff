@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+
+man bu yerda o`zim qilgan ishlarni yuklab boraman o`zim esda qolishi uchun 
